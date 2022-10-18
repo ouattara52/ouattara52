@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
+<!---coucocu je suis nouveau et j'aimerais Ëtre un grand informaticien 
 ouattara52/ouattara52 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+coucou é"-uu-hfbfjbvbf bg fokrrknrk dkfjyrfjcvjjrokr  jju(uv fy(i hu'i ii'y-o  ffe'y( rety(u oççèà_ yyn :;,;p:  	ùdjhn dke_,i-à)=lnh
